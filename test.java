@@ -1,3 +1,2 @@
 ffff
-reyhane burada
-xxxxxxx
+tttt
